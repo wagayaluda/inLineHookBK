@@ -12,4 +12,4 @@ Terraria mobile native mod
 
 ## QQ
 
-* 3382717920
+* 不告诉你
